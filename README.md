@@ -1,2 +1,1 @@
-# jagguvyas01.github.io
-Resume
+# akgraphics.github.io
